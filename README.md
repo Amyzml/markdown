@@ -21,5 +21,5 @@
 请登录[Bing](https://www.bing.com/)查看
 
 
-![qi](D:/desktop/1.png)
+![qi](http://a3.qpic.cn/psb?/V12UM34U0WbQxL/90osI.iQslfAEmVgPvMRoGygtuM8TPseapDqQ*x8oB8!/b/dPIAAAAAAAAA&bo=UwNTA1MDUwMDCSw!&rf=viewer_4)
 

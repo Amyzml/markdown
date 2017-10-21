@@ -21,7 +21,5 @@
 请登录[Bing](https://www.bing.com/)查看
 
 
+![qi](D:/desktop/1.png)
 
-
-
-！[图片](https://tse2-mm.cn.bing.net/th?id=OIP.6EB68rfa4SdDG8lcyfEFlADwEs&w=200&h=250&c=7&qlt=90&o=4&pid=1.7)

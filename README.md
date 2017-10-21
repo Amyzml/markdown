@@ -21,5 +21,5 @@
 请登录[Bing](https://www.bing.com/)查看
 
 
-![qi](http://a3.qpic.cn/psb?/V12UM34U0WbQxL/90osI.iQslfAEmVgPvMRoGygtuM8TPseapDqQ*x8oB8!/b/dPIAAAAAAAAA&bo=UwNTA1MDUwMDCSw!&rf=viewer_4)
+![qi](http://a3.qpic.cn/psb?/V12UM34U0WbQxL/90osI.iQslfAEmVgPvMRoGygtuM8TPseapDqQ*x8oB8!/c/dPIAAAAAAAAA&ek=1&kp=1&pt=0&bo=UwNTA1MDUwMDORw!&vuin=1824857749&tm=1508580000&sce=60-2-2&rf=0-0)
 

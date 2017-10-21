@@ -16,4 +16,4 @@
 ```
 请登录[Bing](https://www.bing.com/)查看
 
-！[图片](https://cn.bing.com/images/search?q=%e5%88%98%e4%ba%a6%e8%8f%b2%e5%86%99%e7%9c%9f&FORM=R5FD0)
+！[图片](https://tse2-mm.cn.bing.net/th?id=OIP.6EB68rfa4SdDG8lcyfEFlADwEs&w=200&h=250&c=7&qlt=90&o=4&pid=1.7)
